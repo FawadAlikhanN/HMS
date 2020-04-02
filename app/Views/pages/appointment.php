@@ -1,1 +1,1 @@
-fawad ali khan Niazi
+fawad ali
